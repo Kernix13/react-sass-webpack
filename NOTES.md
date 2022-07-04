@@ -1,0 +1,3 @@
+# Notes from the video
+
+-
